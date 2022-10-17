@@ -61,11 +61,3 @@ For remote vs. on-site,
 
 1) Employees spent 75% less time preparing and commuting to work.
 2) They spent equal number of hours working, on personal & family time, sleeping, and on domestic responsibilities.
-
-
-
-
-
-
-
-
